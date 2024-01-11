@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mikeymannmade
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ... my blog
+- 😄 Pronouns: they/them or just mikey 
+- ⚡ Fun fact: www.mikeymannmade.com
